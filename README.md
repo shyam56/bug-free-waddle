@@ -1,2 +1,3 @@
-# bug-free-waddle
-Shyam Tudu follow 
+### Hi, I`m Shyam Tudu👋👋👋❄
+          🏥🏥Currently i`m from India(Jharkhand).........
+                  
