@@ -1,3 +1,1 @@
 ### Hi, I`m Shyam Tudu👋👋👋❄
-          🏥🏥Currently i`m from India(Jharkhand).........
-                  
